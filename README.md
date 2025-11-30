@@ -1,4 +1,4 @@
-# Hi, my name's Flower ^^
+Hi, my name's **Flower** ^^
 
 Everything I program is for fun. I never start a serious project, they're all just practice 💯. /s\
 You can generally reach me easiest on my Discord: **@kittycatmeowmeowcolonthree**\
